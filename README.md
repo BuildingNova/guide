@@ -1,2 +1,1 @@
-# guide
-Nova's MtF Guide
+# Nova's MtF Guide A science-based, regularly updated guide for transgender women written by a transgender woman. **[Click here to read the guide](https://buildingnova.github.io/guide/BuildingNovaF.pdf)** --- Questions, corrections, or just need someone to talk to: buildingnova@proton.me
